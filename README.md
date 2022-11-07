@@ -1,4 +1,4 @@
-Hello 👋
+Hello my name is Claire Bedrossian👋
 
 About ME 💬 :
 - I'm 15 years old and a student passionate about leaning a variety of coding langauges looking for feedback and advice. 
